@@ -18,4 +18,4 @@ Until the Moss had reached our lips -
 And covered up  - Our names -  </p> </pre>
 
 <pre><a href="http://academic.brooklyn.cuny.edu/english/melani/cs6/beauty.html">Link</a>
-<img src="img_chania.jpg" alt="image"></pre>
+<img src="https://user-images.githubusercontent.com/89856849/132791541-30d6a51f-3cfa-46a4-bc21-11cbe7887a53.png" alt="image"></pre>
